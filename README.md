@@ -1,2 +1,6 @@
-## Welcome to GitHub Pages
-There is nothing
+## 欢迎来到DG-CHN
+本页面记录qq群605796380的比赛记录
+
+
+# 2017.8.16
+MR5在第二组获得胜利

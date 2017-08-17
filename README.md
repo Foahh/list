@@ -5,7 +5,7 @@
 ---------------------
 ## 2017.8.16比赛
 ### 第一组
-Glodfish　CO　　　　　VS　　　　　X_huan  Kelvinhh
+'Glodfish'　CO　　　　　VS　　　　　X_huan  Kelvinhh
 
 ### 第二组
 Shang_Carp　1N4_DR4GON　　　　　VS　　　　　wukong_TAT  MR_5
